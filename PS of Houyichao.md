@@ -1,6 +1,6 @@
 ## Why do I apply MSc Political Sociology Programme?
 
-The way life world works is a big puzzle for me. Growing up in a State-owned enterprise family area, I have witnessed the decaying of prosperous community, friends relocating to big cities, parents running a grocery laboriously like British workers in 18th century, our fate changing generation by generation rapidly. During the instinctive observation, I start to explore the force which manipulate our life.
+The way life world works is a big puzzle for me. Growing up in a State-owned enterprise family area, I have witnessed the decaying of prosperous community, friends relocating to big cities, parents running a grocery laboriously like British workers in 18th century, our fate changing generation by generation rapidly. During the instinctive observation, I start to explore the force which manipulate our life.。。。。
 
 *Rerum cognoscere causas*, the motto of LSE, have motivated me for many times. When basking in the sun of Bertrand Russell's, Friedrich Hayek's and Fei Xiaotong's thought, I realize that they explain the world beautifully, I am fascinated by their mastery and eager to join them.
 
